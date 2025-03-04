@@ -1,0 +1,1 @@
+# medal-screenshot-spoofer
